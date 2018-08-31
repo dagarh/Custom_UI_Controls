@@ -1,6 +1,6 @@
 I am also mentioning sites where you can find images for free : <br> https://www.pexels.com/ <br> https://pixabay.com/en/ <br> https://unsplash.com/ <br> https://stocksnap.io/ <br> https://deathtothestockphoto.com/
 
-In order to follow up with the above code for designable, follow up the below link : <br> https://www.youtube.com/playlist?list=PLHDMmeIMXj8X0y14LQczodUbf37sQfqed
+In order to follow up with the above code for designable, refer the below link : <br> https://www.youtube.com/playlist?list=PLHDMmeIMXj8X0y14LQczodUbf37sQfqed
 
 
 # DesignableX
